@@ -9,4 +9,5 @@ Estoy enfocada en el desarrollo web y me encanta trabajar con HTML, CSS, JavaScr
 
 Siempre estoy abierta a nuevas oportunidades para expandir mis conocimientos y participar en proyectos inspiradores.
 
-![Hada](https://raw.githubusercontent.com/OpenAI/gpt-3.5-examples/main/examples/images/fairy_mushroom.jpg)
+![Hada](https://co.pinterest.com/pin/951385490016077866/)
+
